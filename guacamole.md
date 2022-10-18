@@ -1,3 +1,5 @@
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/3/30/Guacomole.jpg/512px-Guacomole.jpg)
+
 Ingredients:
 - 2 avocados
 - 1 lime
